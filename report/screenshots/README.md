@@ -1,0 +1,1 @@
+These images were cropped from actual screenshots supplied by the project tester from the local Shorehaven Villa website on 23-24 November 2026. They serve as evidence for the project report; they are not generated mockups. Demo guest data is fictional. Screens may differ slightly after subsequent modifications.
